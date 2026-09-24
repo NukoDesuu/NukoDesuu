@@ -1,3 +1,4 @@
+<i>VERY STALE overview readme page please read with caution ToT</i>
 <h1>😸 About me</h1>
 Hi yaa~ Name's Nuko, as in cat 🐾
 I love cute stuff and the idea of bringing the imagination into reality ✨.<br>
